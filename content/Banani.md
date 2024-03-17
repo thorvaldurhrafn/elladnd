@@ -1,1 +1,1 @@
-Þetta er banani:) 
+Þetta er banani:) [[content/index|index]]
