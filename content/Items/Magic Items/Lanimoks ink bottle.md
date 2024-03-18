@@ -1,0 +1,1 @@
+Lanimok's ink bottle is a mysterious ink bottle in the possession of the wizard [[Lanimok]], it is not apperant if this bottle is actually a magic item or just an ability [[Lanimok]] has that apples to every ink bottle but [[Lanimok]] can jump inside this ink bottle and store items in it.

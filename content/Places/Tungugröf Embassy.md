@@ -1,0 +1,1 @@
+The Tungugröf embassy is a embassy where the guards of [[Tungugröf]] reside and protect their town.

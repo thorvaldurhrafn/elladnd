@@ -1,0 +1,1 @@
+Hide er rogue sem [[Enok]] spilaði, Hide drukknaði stutt á eftir [[Great Pirate Arc]].

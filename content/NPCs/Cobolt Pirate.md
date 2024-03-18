@@ -1,0 +1,2 @@
+#NPC 
+Cobold Pirate is a  NPC from the [[Great Pirate Arc]] who is also a [[One Off NPCs]] this Cobold only appeared in two sessions as he was our roommate during our undercover mission as pirates during the [[Great Pirate Arc]]. This Cobold had a close bond with [[Eldarion]]

@@ -1,0 +1,1 @@
+Gamla veldið is a little town up in the mountains, we do not know much about the town as we have not been there before

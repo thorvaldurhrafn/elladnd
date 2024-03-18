@@ -1,0 +1,1 @@
+Gauti The Captain is the captain of a [[Nýja Veldið]] ship. Gauti was a [[Reoccurring NPC]] from the [[Great Pirate Arc]]. Gauti was willing to betray the [[Nýja Veldið]] by sabotaging his own ship for [[The pirate siege]] so he could save [[Jósef| His son]]. Since he was kidnapped by pirates which kind of kick-started the entire [[Great Pirate Arc]].
